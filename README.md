@@ -56,7 +56,7 @@ me and many others.
 ## 📬 Contact
 
 - GitHub: [@asafd8](https://github.com/asafd8)
-- Facebook: [הקישור שלך לפייסבוק]
+- Facebook: [https://www.facebook.com/spbnymyny.355649]
 
 ## ⚠️ Disclaimer
 
